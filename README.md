@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @syedalbaher
-- 👀 I’m interested in coding...
+- 👀 I’m interested in Programming...
 - 💞️ I’m looking to collaborate on .codcademy..
 - 📫 How to reach me .my gmail is albahershah@gmail.com..
 
